@@ -1,6 +1,5 @@
-I forgot why I made my github account honestly
+If you really want a short name for me just call me Azzy.
 
-<!---
-AZthemute/AZthemute is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+No you can't contact me on discord, email or anything else.
+
+I'll put something here when I have some projects I want to share.
