@@ -1,3 +1,1 @@
-If you really want a short name for me just call me Azzy.
-
-I still can't think of anything to put here...
+Hello, I create things that I think people will find useful. If I can't find it online, I will create it myself. Or sometimes I just create things for fun.
